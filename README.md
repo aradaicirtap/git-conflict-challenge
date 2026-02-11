@@ -1,1 +1,1 @@
-# Im amazing, thanks 
+# Im amazing, thanks.
