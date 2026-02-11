@@ -1,1 +1,1 @@
-# git-conflict-challenge
+# Im amazing, thanks 
